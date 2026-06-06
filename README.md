@@ -32,6 +32,6 @@ I enjoy building innovative projects, exploring emerging technologies, and conti
 To become a skilled Software Engineer and contribute to innovative technology solutions through continuous learning, creativity, and problem-solving.
 
 Email: madhusricheekatla@gmail.com
-LinkedIn: linkedin.com/in/madhusri-cheekatla-23b50a292
+LinkedIn: https://www.linkedin.com/in/madhusri-cheekatla-23b50a292
 
 Thank you for visiting my profile!
